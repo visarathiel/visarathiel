@@ -1,8 +1,8 @@
 # 💫 About
-Hello, world!<br>I'm Alvaro, a voracious polymath of many stacks.<br>I strive to hone my computer science skills with my business acumen, fictional writing endeavours, and my authority as a divinatory practitioner.<br>That being said, solving real-world cases where everything I do is in the intersection of it all is the main trail I blaze on.
+I'm Alvaro (Vi) Sarathiel, a voracious polymath of many stacks.<br>I strive to hone my computer science skills with my business acumen, fictional writing endeavours, and my authority as a divinatory practitioner.<br>In my line of work, I bridge pedagogy, technology, and the occult. That being said, solving real-world cases where everything I do is in the intersection of it all is the main trail I blaze on.<br>
 
 # 🌙 Details
-⋆ He/him, although will always be open to any pronouns.<br>⋆ Likes statistics, human resources, and anything related to the psyche of identity<br>⋆ Fandom includes Genshin Impact, Honkai: Star Rail, Love and Deepspace, and SM Entertainment artists (mainly Super Junior and NCT for now)<br>⋆ Please do not interact with if you're a minor or someone who cannot separate fiction from reality.<br>⋆ Always open to discussions about business!<br>⋆ Has multiple businesses ongoing, including [Karsa Bintang](https://karsabintang.com)
+⋆ He/him, although will always be open to any pronouns.<br>⋆ Likes statistics, human resources, and anything related to the psyche of identity<br>⋆ Fandom includes Genshin Impact, Honkai: Star Rail, Love and Deepspace, and SM Entertainment artists (mainly Super Junior and NCT for now)<br>⋆ Please do not interact with if you're a minor or someone who cannot separate fiction from reality<br>⋆ Always open to discussions about business!<br>⋆ Has multiple projects ongoing, including [Karsa Bintang](https://karsabintang.com)
 
 ## 🌐 Socials
 [![Twitter](https://img.shields.io/badge/X-black.svg?logo=X&logoColor=white)](https://x.com/@visarathiel) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:visarathiel@gmail.com) 
